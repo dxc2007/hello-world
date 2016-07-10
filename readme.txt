@@ -1,0 +1,1 @@
+seriously, dallas shooting?
