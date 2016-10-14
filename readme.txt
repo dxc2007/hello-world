@@ -1,3 +1,1 @@
-seriously, dallas shooting?
-
-nvm, it's kay.
+First time here!
